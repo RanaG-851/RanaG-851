@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RanaG-851
-- 👀 I’m interested in Mobile Application Development, Cyber Security
+- 👀 I’m interested in Mobile Application Development, Ethical hacker
 - 🌱 I’m currently learning BsCS
 - 📫 How to reach me You can reach out to me via email at rana4801660@gmail.com
 - 😄 Pronouns: He/Him
